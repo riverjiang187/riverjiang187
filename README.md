@@ -2,10 +2,10 @@
 - 👀 I’m interested in a lot of things.
 - 🌱 I’m currently learning a lot of things
 - 📫 How to reach me:
-  1. my mobile number: 131 6617 4565
-  2. my outlook email adress: river.jiang2022@outlook.com
-  3. my gmail: riverjiang0124@gmail.com
-  4. my iCloud email address: riverjiang0124@icloud.com
+  1. my mobile number: `131 6617 4565`
+  2. my outlook email adress: `river.jiang2022@outlook.com`
+  3. my gmail: `riverjiang0124@gmail.com`
+  4. my iCloud email address: `riverjiang0124@icloud.com`
 - 😄 Pronouns: ?
 - ⚡ Fun fact: ?
 
