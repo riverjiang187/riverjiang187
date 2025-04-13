@@ -1,5 +1,5 @@
 - 👋 Hi, I’m riverjiang187
-- 👀 I’m interested in a lot of things.
+- 👀 I’m interested in cello, sailing, and math.
 - 🌱 I’m currently learning a lot of things
 - 📫 How to reach me: ?
 - 😄 Pronouns: ?
